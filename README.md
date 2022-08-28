@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @samjefferson7
-- 👀 I’m interested in Web designing, Programming, Hacking
+- 👀 I’m interested in Web designing, Programming, cyber security
 - 🌱 I’m currently learning.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me samjefferson077@gmail.com
